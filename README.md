@@ -11,4 +11,6 @@ Negative comments mainly includes racist or sexist comment or the hashtags and t
 
 ![WhatsApp Image 2024-09-04 at 22 39 06_4efa5e12](https://github.com/user-attachments/assets/8432e428-0563-422f-9ae0-6426bf65c2a3)
 
+![WhatsApp Image 2024-09-04 at 22 39 26_6503c89c](https://github.com/user-attachments/assets/2b940eab-3f2b-445a-ae96-5a3dfa7bd3fe)
+
 
