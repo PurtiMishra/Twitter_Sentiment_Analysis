@@ -6,3 +6,5 @@ Negative comments mainly includes racist or sexist comment or the hashtags and t
 
 
 ![WhatsApp Image 2024-09-04 at 22 38 44_eb3fd875](https://github.com/user-attachments/assets/3db68481-a5a2-4453-9b10-9e5952822503)
+
+![WhatsApp Image 2024-09-04 at 22 40 00_31fea4ac](https://github.com/user-attachments/assets/a036e857-1e31-4912-9e39-b6d31bbfb4ab)
